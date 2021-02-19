@@ -11,3 +11,4 @@
 - ✉ Send me an Email: **contact@coolkid2342.co.uk**.
 
 <hr>
+note i stole this from weirdo connor
